@@ -17,6 +17,7 @@ im African-American! (NOT BRITISH.)
 Pansexual! probably genderfluid..? who knowzz!
 ☆
 OH. yeah! im a kemonomimi!! ^^
+•I THINK.. I might be a pet regressor..? not completely sure😓
 ☆
 mmm idk what else to put sooo ill just put random things!
 ☆
