@@ -5,7 +5,8 @@ but i also go by...!!
 Remi/y, Feira/Feitan/Fei, Esper...!
 ik its alot but!!!! heh super kawaii right... r-right..?
 ☆
-im 16 years old!! well almost 17 hehe (July 1st!!)
+im 17 years old!!
+☆
 um! pronounzz!!!
 ☆
 i go by any bcusz i rlly dont care but mainly she/her!
