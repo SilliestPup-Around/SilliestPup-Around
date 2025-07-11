@@ -28,8 +28,7 @@ my favorite color is pink!! if you already couldnt tell..
 ☆
 3rd might be yellow cusz i absolutely LOOVE bright colors. might switch green n yellow who knows.
 ☆
-i have a boyfriend! hes so sweet guys... and freakayyy😈/hj
-heh okay...😓
+hey so im single now🐺
 ☆
 um.. I might add on..? I don't know..
 .°•☆•°.
